@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://AmbassadorCrucible.github.io/fling-things-and-p-nx01/) |
  |---------------------|----------------------:|
 
 
